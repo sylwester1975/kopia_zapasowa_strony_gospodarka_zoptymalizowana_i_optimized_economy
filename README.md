@@ -1,0 +1,1 @@
+# kopia_zapasowa_strony_gospodarka_zoptymalizowana_i_optimized_economy
